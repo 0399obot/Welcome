@@ -1,5 +1,5 @@
 # Welcome
 #
-![FIRST RUN OF MY TOOL](https://github.com/0399obot/Welcome/blob/master/setiaji.jpg)
+![STUPID HOUSE](https://github.com/0399obot/Welcome/blob/master/Setiaji.png)
 #
-Stupid house
+Saya Tidak Tahu Apa Yang Anda Rencana!! 
