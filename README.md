@@ -4,7 +4,7 @@
                 
 	                 𝙒 𝙀 𝙇 𝘾 𝙊 𝙈 𝙀    
  #
-![STUPID HOUSE](https://github.com/0399obot/Welcome/blob/main/0399obot.png)
+![STUPID HOUSE](https://github.com/0399obot/Welcome/blob/main/0399obot.webp)
 #
          •••••••••••••••••••••••••••••••••••••••
          Saya Tidak Tahu Apa Yang Anda Rencana!! 
